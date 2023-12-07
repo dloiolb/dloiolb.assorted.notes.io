@@ -1,2 +1,2 @@
-# Assorted_Notes
-[dloiolb.Assorted_Notes.io](https://dloiolb.Assorted_Notes.io/)
+# Assorted Notes
+[dloiolb.assorted.notes.io](https://dloiolb.assorted.notes.io/)
